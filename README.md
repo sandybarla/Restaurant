@@ -1,1 +1,1 @@
-# Restaurant-Happy-Grillmore
+# Happy Grillmore - Restaurant
